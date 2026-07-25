@@ -1,1 +1,1 @@
-# Ampas_Dark_System.15kozpqx
+Crack By @yatimitu123 Github Ini Telah Diawasi Oleh Dark
